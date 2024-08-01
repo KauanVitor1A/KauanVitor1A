@@ -13,4 +13,4 @@ Meu nome e Kauan Vitor!!
 - @kauax.lp
 
 
-![](https://media1.tenor.com/m/MPh0-mH3YC4AAAAC/josh-common-l.gif)
+![](https://media1.tenor.com/m/Oc_j99Z3VcYAAAAC/minayoecn-jihyo.gif)
